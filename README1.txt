@@ -1,2 +1,3 @@
-o sistema de extens„o ir· permitir ao aluno imprimir seus certificados.
-Logo logo vou almoÁar.
+o sistema de extens√£o ir√° permitir ao aluno imprimir seus certificados.
+Logo logo vou almo√ßar.
+Leonardo, recebeu?
